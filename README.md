@@ -1,4 +1,4 @@
-## Hi there, weclome to my profile 👋
+## Hi there, welcome to my profile 👋
 
 I’m glad you stopped by! Here’s a little about me:
 
